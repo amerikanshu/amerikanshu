@@ -1,1 +1,1 @@
-Discord: Amerikan#1337
+Discord: Thype#1337
